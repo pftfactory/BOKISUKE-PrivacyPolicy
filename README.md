@@ -1,0 +1,2 @@
+# BOKISUKE-PrivacyPolicy
+BOKISUKEのプライバシーポリシー
